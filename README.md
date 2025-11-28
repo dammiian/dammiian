@@ -24,6 +24,16 @@
 <p align="center">⠀/•᷅‎‎•᷄\੭ ⋮⋮ 𝙜𝙖𝙮𝙢𝙞𝙣𝙜
 <p align="center">⠀currently obsessed with overwatch, i’m a nasty lucio otp. my flex game is valorant where i use pretty much any character since i suck at aim and idc. roblox only with friends since it’s boring to play alone.
 
+<p align="center">⠀/•᷅‎‎•᷄\੭ ⋮⋮ 𝙢𝙚
+<p align="center">⠀yes, i am named damian irl, but call me luce or dust if you don’t want to get confused. born 07/05/2006 and as everyone in here, neurodivergent, yet medicated. not into relationships, not at all. sometimes cosplaying, more as in edits, since i’m lazy.
+
+<p align="center">⠀/•᷅‎‎•᷄\੭ ⋮⋮ 𝙡𝙖𝙨𝙩, 𝙗𝙪𝙩 𝙣𝙤𝙩 𝙡𝙚𝙖𝙨𝙩.
+<p align="center">⠀i love Jon x Damian, if we totally ignore the horrid idea of aging up Jon. i usually accept every friend request on discord, and use it to roleplay extendedly━and i keep romantic rp as just fictional. by the way, i do not feel comfortable at all hanging out with minors or roleplaying with them; i don’t mind any friendly interaction, though. the dnd status is just to avoid spam notis, i am "disturbable"!
+⠀
+
+⠀
+<p align="center">⠀©⠀⠀⠀𝗰𝗼𝗽𝘆right
+
 <p align="center"><img width="736" height="317" alt="image" src="https://github.com/user-attachments/assets/2bc928ca-c2e7-4bd2-9ffc-36d1ef9e44e8" />
 
 ⠀<div align="center">![](https://dcbadge.limes.pink/api/shield/828077111016947725?theme=gray)</div>
