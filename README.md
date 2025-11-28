@@ -37,6 +37,7 @@
 <p align="center">⠀yes, i am named damian irl, but call me luce or dust if you don’t want to get confused.
 <p align="center">⠀born 07/05/2006 and as everyone in here, neurodivergent, yet medicated. not into relationships,
 <p align="center">⠀not at all. sometimes cosplaying, more as in edits, since i’m lazy.
+<p align="center"> hyperfixated only in: batfamily / overwatch / invincible
 ⠀⠀⠀⠀⠀
    
 ⠀⠀
