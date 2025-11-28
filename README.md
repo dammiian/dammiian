@@ -30,16 +30,19 @@
 <p align="center">⠀/•᷅‎‎•᷄\੭ ⋮⋮ 𝙡𝙖𝙨𝙩, 𝙗𝙪𝙩 𝙣𝙤𝙩 𝙡𝙚𝙖𝙨𝙩.
 <p align="center">⠀i love Jon x Damian, if we totally ignore the horrid idea of aging up Jon. i usually accept every friend request on discord, and use it to roleplay extendedly━and i keep romantic rp as just fictional. by the way, i do not feel comfortable at all hanging out with minors or roleplaying with them; i don’t mind any friendly interaction, though. the dnd status is just to avoid spam notis, i am "disturbable"!
 ⠀
+⠀⠀
 
+⠀<div align="center">![](https://dcbadge.limes.pink/api/shield/828077111016947725?theme=gray)</div>
+
+⠀⠀
+   <div align="center"><a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31t4ywfmo4w4pioy6p7wp77zd63q&cover_image=true&theme=spotify-embed&show_offline=false&background_color=495c47&interchange=false&profanity=false&mode=dark&bar_color=5a6c5a&bar_color_cover=false"></div>
+  </a>
+</p>
 ⠀
 <p align="center">⠀©⠀⠀⠀𝗰𝗼𝗽𝘆right
 
 <p align="center"><img width="736" height="317" alt="image" src="https://github.com/user-attachments/assets/2bc928ca-c2e7-4bd2-9ffc-36d1ef9e44e8" />
 
-⠀<div align="center">![](https://dcbadge.limes.pink/api/shield/828077111016947725?theme=gray)</div>
 
-   <div align="center"><a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31t4ywfmo4w4pioy6p7wp77zd63q&cover_image=true&theme=spotify-embed&show_offline=false&background_color=495c47&interchange=false&profanity=false&mode=dark&bar_color=5a6c5a&bar_color_cover=false"></div>
-  </a>
-</p>
 
