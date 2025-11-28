@@ -34,9 +34,9 @@
 ⠀⠀⠀⠀⠀
    
 <p align="center">⠀/•᷅‎‎•᷄\੭ ⋮⋮ 𝙢𝙚⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-<p align="center">⠀yes, i am named damian irl, but call me luce or dust if you don’t want to get confused.
-<p align="center">⠀born 07/05/2006 and as everyone in here, neurodivergent, yet medicated. not into relationships,
-<p align="center">⠀not at all. sometimes cosplaying, more as in edits, since i’m lazy.
+<p align="center">⠀yes, i am named damian irl, and i do have a pair of cows as my pets, but call me luce or dust if 
+<p align="center">⠀you don’t want to get confused. born 07/05/2006 and as everyone in here, neurodivergent, yet 
+<p align="center">⠀medicated. not into relationships, not at all. sometimes cosplaying, more with edits, i’m lazy.
 <p align="center"> hyperfixated only in: batfamily / overwatch / invincible
 ⠀⠀⠀⠀⠀
    
