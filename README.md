@@ -38,6 +38,7 @@
 <p align="center">⠀you don’t want to get confused. born 07/05/2006 and as everyone in here, neurodivergent, yet 
 <p align="center">⠀medicated. not into relationships, not at all. sometimes cosplaying, more with edits, i’m lazy.
 <p align="center"> hyperfixated only in: batfamily / overwatch / invincible
+<p align="center">⠀The cows weren't a joke, btw.
 ⠀⠀⠀⠀⠀
    
 ⠀⠀
