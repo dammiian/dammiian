@@ -62,7 +62,9 @@
 ⠀
 
 <p align="center"><img width="736" height="317" alt="image" src="https://github.com/user-attachments/assets/2bc928ca-c2e7-4bd2-9ffc-36d1ef9e44e8" />
-
+<p align="center">⠀❝𝙏𝙝𝙚 "𝙎" 𝙨𝙩𝙖𝙣𝙙𝙨 𝙛𝙤𝙧 𝙨𝙩𝙪𝙥𝙞𝙙, 𝙧𝙞𝙜𝙝𝙩? 𝙩𝙝𝙖𝙩'𝙨 𝙬𝙝𝙮 𝙮𝙤𝙪 𝙨𝙖𝙮 𝙞𝙩 𝙢𝙚𝙖𝙣𝙨 𝑯𝑶𝑷𝑬, 𝙗𝙚𝙘𝙖𝙪𝙨𝙚 𝙮𝙤𝙪'𝙧𝙚 𝙩𝙤𝙤 𝙎𝙏𝙐𝙋𝙄𝘿 𝙩𝙤 𝙠𝙣𝙤𝙬 𝙬𝙝𝙖𝙩 𝙖𝙣 𝙨𝙤𝙪𝙣𝙙 𝙖𝙣 𝙎 𝙢𝙖𝙠𝙚𝙨?!?!❞
+<p align="center"> ❝𝙎𝙎𝙎𝙎𝙎𝙎𝙎𝙎𝙎𝙎!!❞
+<p align="center"> ❝𝙏𝙝𝙖𝙩'𝙨 𝙖𝙣 𝙎 𝙨𝙤𝙪𝙣𝙙! 𝙎𝙎𝙎𝙎𝙎𝙎𝙎𝙎𝙎𝙎!!❞
 <p align="center">⠀©⠀⠀⠀𝗰𝗼𝗽𝘆right
 
 
