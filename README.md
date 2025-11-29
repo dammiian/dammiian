@@ -39,6 +39,8 @@
 <p align="center">⠀medicated. not into relationships, not at all. sometimes cosplaying, more with edits, i’m lazy.
 <p align="center"> hyperfixated only in: batfamily / overwatch / invincible
 <p align="center">⠀The cows weren't a joke, btw.
+⠀<div align="center"><img width="819" height="199" alt="image" src="https://github.com/user-attachments/assets/f5b5bccf-c2b9-43bb-a289-351623ac77a7" />
+
 ⠀⠀⠀⠀⠀
    
 ⠀⠀
