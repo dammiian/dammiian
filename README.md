@@ -35,7 +35,7 @@
    
 <p align="center">⠀/•᷅‎‎•᷄\੭ ⋮⋮ 𝙢𝙚⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <p align="center">⠀yes, i am named damian irl, and i do have a pair of cows as my pets, but call me luce or dust if 
-<p align="center">⠀you don’t want to get confused. born 07/05/2006 and as everyone in here, neurodivergent, yet 
+<p align="center">⠀you don’t want to get confused. born 07/05 and as everyone in here, neurodivergent, yet 
 <p align="center">⠀medicated. not into relationships, not at all. sometimes cosplaying, more with edits, i’m lazy.
 <p align="center"> hyperfixated only in: batfamily / overwatch / invincible
 <p align="center">⠀The cows weren't a joke, btw.
@@ -47,7 +47,7 @@
 <p align="center">⠀/•᷅‎‎•᷄\੭ ⋮⋮ 𝙡𝙖𝙨𝙩, 𝙗𝙪𝙩 𝙣𝙤𝙩 𝙡𝙚𝙖𝙨𝙩.
 <p align="center">⠀i love Jon x Damian, if we totally ignore the horrid idea of aging up Jon. i usually accept every
 <p align="center">⠀friend request on discord, and use it to roleplay extendedly━and i keep romantic rp as just fictional.
-<p align="center">⠀by the way, i do not feel comfortable at all hanging out with minors or roleplaying with them; i don’t mind 
+<p align="center">⠀by the way, i do not feel comfortable at all hanging out with -15 or roleplaying with them; i don’t mind 
 <p align="center">⠀any friendly interaction, though. the dnd status is just to avoid spam notis, i am "disturbable"!
 ⠀
 ⠀⠀
