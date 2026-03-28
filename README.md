@@ -70,6 +70,12 @@
 <p align="center"> ❝𝙏𝙝𝙖𝙩'𝙨 𝙖𝙣 𝙎 𝙨𝙤𝙪𝙣𝙙! 𝙎𝙎𝙎𝙎𝙎𝙎𝙎𝙎𝙎𝙎!!❞
 <p align="center">⠀©⠀⠀⠀𝗰𝗼𝗽𝘆right
 
-btw
-![26_sin_titulo_20260327202706](https://github.com/user-attachments/assets/d0e8a382-9c7a-4c76-aa99-1e8e44af91a7)
+
+
+
+
+
+btw if youre here for the reason i think u are, take this!
+
+![26_sin_titulo_20260327202706](https://github.com/user-attachments/assets/77c1f13e-a514-4396-9952-dbc9419ee846)
 yay!
