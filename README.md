@@ -76,6 +76,5 @@
 
 
 btw if youre here for the reason i think u are, take this!
-
-![26_sin_titulo_20260327202706](https://github.com/user-attachments/assets/77c1f13e-a514-4396-9952-dbc9419ee846)
-yay!
+![656887448_918328287577986_474660809334220226_n](https://github.com/user-attachments/assets/2cad2f46-31f1-446d-97e4-9847a857c16c)
+yay! now dont harass someone 4 years younger xoxo
